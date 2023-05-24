@@ -32,4 +32,20 @@ We utilize a wide array of the latest technologies including but not limited to:
 
     24/7 Support: We're here for you round-the-clock. Any questions or issues? We're just a call away.
     
-    https://www.c-agence.com
+Quality Work: We pride ourselves on delivering top-quality, fully-tested web solutions.
+
+Timely Delivery: Your time is valuable. We respect deadlines and ensure your project is delivered on time.
+
+Transparent Communication: We believe in clear, open communication. You'll always be in the loop regarding your project's progress.
+
+24/7 Support: We're here for you round-the-clock. Any questions or issues? We're just a call away.
+
+Quality Work: We pride ourselves on delivering top-quality, fully-tested web solutions.
+
+Timely Delivery: Your time is valuable. We respect deadlines and ensure your project is delivered on time.
+
+Transparent Communication: We believe in clear, open communication. You'll always be in the loop regarding your project's progress.
+
+24/7 Support: We're here for you round-the-clock. Any questions or issues? We're just a call away.
+
+https://www.c-agence.com
